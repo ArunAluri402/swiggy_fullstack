@@ -1,1 +1,1 @@
-https://cloudonair.withgoogle.com/events/cloud-technical-series-apac-q1-2024?utm_content=lctr_itp&utm_source=cloud_sfdc&utm_medium=email&utm_campaign=FY24-Q1-apac-ASPA888-onlineevent-er-cloudtechnicalseriesq124_mc&pref=K&mkt_tok=ODA4LUdKVy0zMTQAAAGR848lrWl5ChhRDQRfGw2cTe9b_oPKkBO_sZ3Ba7hGqxR_Y1YdXTmyRqN8kBX2GEFEboXdKq1RqsUz-rRex6i38qVKvEMg7v5fVcFn-HVWN8x95-zTE5k
+
